@@ -1,2 +1,1 @@
-# ㄴㄷㅆ
-**You are certified as ㄴㄷㅆ**
+# **You are certified as ㄴㄷㅆ**
